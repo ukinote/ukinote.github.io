@@ -1,2 +1,0 @@
-# ukinote.github.io
-promotion
